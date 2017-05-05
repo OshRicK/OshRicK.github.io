@@ -1,0 +1,1 @@
+# OshRicK.github.io
